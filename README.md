@@ -17,7 +17,7 @@ Requirements Monkey Mod manager, BananaOS and Custom cosmetics. In order to set 
 ![IMAGE ALT](https://github.com/BLOL12/Gorilla-tag-glock-17-holdable/blob/main/2025-05-02%2011-17-28-29.png?raw=true)
 ![IMAGE ALT](https://github.com/BLOL12/Gorilla-tag-glock-17-holdable/blob/main/2025-05-02%2010-28-22-18.png?raw=true)
 ![IMAGE ALT](https://github.com/BLOL12/Gorilla-tag-glock-17-holdable/blob/main/2025-05-02%2010-28-55-25.png?raw=true)
-![IMAGE ALT](
+![IMAGE ALT](https://github.com/BLOL12/Gorilla-tag-glock-17-holdable/blob/main/2025-05-02%2010-29-27-52.png?raw=true)
 ![IMAGE ALT](
 ![IMAGE ALT](
 ![IMAGE ALT](
